@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DivyanshuTripathiCoder
 - 👀 I’m interested in cubing, puzzels, maths and gym!!
 - 🌱 I’m currently learning html / css
-- 💞️ I’m looking to collaborate on mentors who can help me grow 
+- 💞️ I’m looking to collaborate with mentors who can help me grow 
 - 📫 How to reach me - via divyanshu8512@gmail.com
