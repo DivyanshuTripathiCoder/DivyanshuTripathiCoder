@@ -2,4 +2,4 @@
 - 👀 I’m interested in cubing, puzzels, maths and gym!!
 - 🌱 I’m currently learning html / css
 - 💞️ I’m looking to collaborate with mentors who can help me grow 
-- 📫 How to reach me - via divyanshu8512@gmail.com
+- 📫 How to reach me - via divyanshutripathiji@gmail.com
